@@ -97,6 +97,7 @@ Output Waveform
 <img width="1917" height="997" alt="Screenshot 2025-08-08 174335" src="https://github.com/user-attachments/assets/e7845ad9-6269-446c-9446-5521ef8072e1" />
 
 TABULATION:
+![WhatsApp Image 2025-08-27 at 21 24 20_53502c39](https://github.com/user-attachments/assets/fb4bcd80-2927-41be-856e-a9c0bd62dae4)
 
 
 
